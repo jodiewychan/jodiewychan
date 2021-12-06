@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jodiewychan
+- 👋 Hi, I’m @jwyc
 - 👀 I’m interested in SaaS, Crypto related products, and music
 - 🌱 I’m currently learning  
 - �  Keen to collaborate on community building 
